@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ylansegal
+- https://ylan.segal-family.com/
+- https://www.linkedin.com/in/ylansegal/
